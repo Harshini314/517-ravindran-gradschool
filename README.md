@@ -55,5 +55,6 @@ It was a surreal feeling when I arrived and reached Raleigh.
 ## Final Word
 
 Well this was a year long journey, prepping my application and starting my grad school journey, but I'd say it was definitely worth it and would recommend it to anyone!
+If I can do it, you can too!
 
 [another link]: https://www.niche.com/colleges/search/best-colleges/
