@@ -25,16 +25,35 @@ I based my decision on the college rankings given [here][another link].
 
 ## Sending in Applications
 
+This was the most difficult part. It was hard to manage work and prepare applications but I did it!
+
+![It was worth the effort](images/multitasking.jpeg)
+
 ## Making the Final Decision 
+
+This was not hard at all! 
+I alwayd knew I wanted to get into NC state, and I decided that was going to be my first choice while sending in the applications. 
 
 ### Recieving the Admit
 
+Two months later, I got the admit mail from NC state!
+
+![Elated](images/acceptance.jpeg)
+
 ### Getting the Visa
+
+I finally got the visa and was elated to start my journey!
 
 ### Packing the Bags
 
+After a strenous two months, I was relieved to pack my bags and leave, stepping on the path to realising my dreams of studying in the US!
+
 ### Arriving and Settling Down
 
+It was a surreal feeling when I arrived and reached Raleigh. 
+
 ## Final Word
+
+Well this was a year long journey, prepping my application and starting my grad school journey, but I'd say it was definitely worth it and would recommend it to anyone!
 
 [another link]: https://www.niche.com/colleges/search/best-colleges/
