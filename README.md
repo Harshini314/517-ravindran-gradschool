@@ -21,7 +21,7 @@ I then did a detailed analysis and ranked these colleges as follows according to
 2. [ASU](https://asuonline.asu.edu)
 3. [Missouri S&T](www.mst.edu)
 
-I based my decision on the college rankings given [here][https://www.usnews.com/best-colleges]. 
+I based my decision on the college rankings given [here][another link]. 
 
 ## Sending in Applications
 
@@ -37,3 +37,4 @@ I based my decision on the college rankings given [here][https://www.usnews.com/
 
 ## Final Word
 
+[another link]: www.www.stumbleupon.com
