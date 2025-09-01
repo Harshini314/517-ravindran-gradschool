@@ -25,6 +25,7 @@ I based my decision on the college rankings given [here][another link].
 
 ## Sending in Applications
 
+
 ## Making the Final Decision 
 
 ### Recieving the Admit
