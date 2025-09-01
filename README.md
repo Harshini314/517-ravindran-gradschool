@@ -17,9 +17,11 @@ With my academic goals in mind, I chose to apply to the following colleges:
 
 I then did a detailed analysis and ranked these colleges as follows according to how :
 
-1. NC State
-2. ASU
-3. Missouri S&T
+1. [NC State](www.ncsu.com)
+2. [ASU](https://asuonline.asu.edu)
+3. [Missouri S&T](www.mst.edu)
+
+I based my decision on the college rankings given [here][another link]. 
 
 ## Sending in Applications
 
@@ -35,3 +37,4 @@ I then did a detailed analysis and ranked these colleges as follows according to
 
 ## Final Word
 
+[another link]: https://www.niche.com/colleges/search/best-colleges/
