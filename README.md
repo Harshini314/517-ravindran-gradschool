@@ -37,4 +37,4 @@ I based my decision on the college rankings given [here][another link].
 
 ## Final Word
 
-[another link]: www.www.stumbleupon.com
+[another link]: https://www.niche.com/colleges/search/best-colleges/
